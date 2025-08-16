@@ -42,7 +42,7 @@ We will ask you to revise before publication.
    • Your file (DOC / TXT / MD)  
    • Pen-name or real name  
    • One-line bio (optional)  
-3. We reply within 7~7~21 days. If we ask for edits, you’ll get clear feedback, not radio silence.
+3. We reply within 7~21 days. If we ask for edits, you’ll get clear feedback, not radio silence.
 4. 📧 Submission email: [FLS-SS3-4001@outlook.com](mailto:FLS-SS3-4001@outlook.com)
 
 ---
@@ -100,7 +100,7 @@ We read English and Chinese; other languages will be translated with love (and G
 1. 注册 B 站账号（免费）。  
 2. 私信编辑：[@SS3-4001](https://space.bilibili.com/1052756560)  
    附件：稿子（DOC / TXT / MD）+ 笔名或真名 + 一句话简介（可不写）。  
-3. 7~7~21 天内回复。如需修改，会给出具体建议，不玩“已读不回”。
+3. 7~21 天内回复。如需修改，会给出具体建议，不玩“已读不回”。
 4. 📧 投稿邮箱：FLS-SS3-4001@outlook.com
 
 ---
@@ -159,7 +159,7 @@ We read English and Chinese; other languages will be translated with love (and G
 2. 私訊編輯：[@SS3-4001](https://space.bilibili.com/1052756560)  
    檔案格式：DOC / TXT / MD  
    請附：筆名或真名、一句自我介紹（選填）。  
-3. 7~7~21 日內回覆。如需修改，會給明確建議，不會已讀不回。
+3. 7~21 日內回覆。如需修改，會給明確建議，不會已讀不回。
 4. 📧 投稿信箱：FLS-SS3-4001@outlook.com
 
 ---
@@ -218,7 +218,7 @@ We read English and Chinese; other languages will be translated with love (and G
 1. Bilibili のアカウントを作成（無料）。  
 2. 編集部 [@SS3-4001](https://space.bilibili.com/1052756560) へ DM  
    添付：原稿（DOC/TXT/MD）、ペンネーム or 本名、50 字以内の自己紹介（任意）。  
-3. 7~7~21 営業日以内に返信。修正依頼があった場合、具体的なアドバイスをお送りします。
+3. 7~21 営業日以内に返信。修正依頼があった場合、具体的なアドバイスをお送りします。
 4. 📧 投稿先メール：[FLS-SS3-4001@outlook.com](mailto:FLS-SS3-4001@outlook.com)
 
 ---
