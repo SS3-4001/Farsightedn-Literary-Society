@@ -15,4 +15,4 @@ Pieces appear either as original submissions or as texts we’ve gathered online
 Create a Bilibili account and DM me from my profile (https://space.bilibili.com/1052756560 ). Attach your piece and tell me the name you’d like it published under.
 
 # Topics?  
-No limits—only the rules spelled out in “convention.md” apply.
+No limits—only the rules spelled out in **“convention.md”** apply.
