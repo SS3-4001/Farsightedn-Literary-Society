@@ -43,6 +43,7 @@ We will ask you to revise before publication.
    • Pen-name or real name  
    • One-line bio (optional)  
 3. We reply within 21 days. If we ask for edits, you’ll get clear feedback, not radio silence.
+4. 📧 Submission email: [FLS-SS3-4001@outlook.com](mailto:FLS-SS3-4001@outlook.com)
 
 ---
 
@@ -54,7 +55,7 @@ We will ask you to revise before publication.
 ---
 
 ## Questions?  
-Email: farsighted.literary@gmail.com  
+Email: FLS-SS3-4001@outlook.com  
 We read English and Chinese; other languages will be translated with love (and Google Translate).
 
 ---
@@ -100,6 +101,7 @@ We read English and Chinese; other languages will be translated with love (and G
 2. 私信编辑：[@SS3-4001](https://space.bilibili.com/10522156560)  
    附件：稿子（DOC / TXT / MD）+ 笔名或真名 + 一句话简介（可不写）。  
 3. 21 天内回复。如需修改，会给出具体建议，不玩“已读不回”。
+4. 📧 投稿邮箱：FLS-SS3-4001@outlook.com
 
 ---
 
@@ -111,7 +113,7 @@ We read English and Chinese; other languages will be translated with love (and G
 ---
 
 ## 有问题？
-邮箱：farsighted.literary@gmail.com  
+邮箱：FLS-SS3-4001@outlook.com  
 我们看得懂中文和英文，其他语言也会努力用翻译工具回复。
 
 ---
@@ -158,6 +160,7 @@ We read English and Chinese; other languages will be translated with love (and G
    檔案格式：DOC / TXT / MD  
    請附：筆名或真名、一句自我介紹（選填）。  
 3. 七日內回覆。如需修改，會給明確建議，不會已讀不回。
+4. 📧 投稿信箱：FLS-SS3-4001@outlook.com
 
 ---
 
@@ -169,7 +172,7 @@ We read English and Chinese; other languages will be translated with love (and G
 ---
 
 ## 聯絡我們  
-信箱：farsighted.literary@gmail.com  
+信箱：FLS-SS3-4001@outlook.com  
 我們能讀中文與英文，其他語言也會盡力回信。
 
 ---
@@ -216,6 +219,7 @@ We read English and Chinese; other languages will be translated with love (and G
 2. 編集部 [@SS3-4001](https://space.bilibili.com/10522156560) へ DM  
    添付：原稿（DOC/TXT/MD）、ペンネーム or 本名、50 字以内の自己紹介（任意）。  
 3. 21 営業日以内に返信。修正依頼があった場合、具体的なアドバイスをお送りします。
+4. 📧 投稿先メール：[FLS-SS3-4001@outlook.com](mailto:FLS-SS3-4001@outlook.com)
 
 ---
 
@@ -227,7 +231,7 @@ We read English and Chinese; other languages will be translated with love (and G
 ---
 
 ## お問い合わせ
-メール：farsighted.literary@gmail.com  
+メール：FLS-SS3-4001@outlook.com  
 中国語・英語で対応可能です。他言語も翻訳ツールで頑張ります。
 
 ---
@@ -274,6 +278,7 @@ We read English and Chinese; other languages will be translated with love (and G
 2. Напишите редактору в ЛС: [@SS3-4001](https://space.bilibili.com/10522156560)  
    Прикрепите: файл (DOC/TXT/MD) + псевдоним или имя + одно предложение о себе (по желанию).  
 3. Ответ получите в течение 21 дней. Попросим доработать — объясним конкретно.
+4. 📧 E-mail для отправки: [FLS-SS3-4001@outlook.com](mailto:FLS-SS3-4001@outlook.com)
 
 ---
 
@@ -285,7 +290,7 @@ We read English and Chinese; other languages will be translated with love (and G
 ---
 
 ### Вопросы?  
-Почта: farsighted.literary@gmail.com  
+Почта: FLS-SS3-4001@outlook.com  
 Пишите по-русски, по-китайски или по-английски — на всё ответим.
 
 ---
@@ -332,6 +337,7 @@ On vous dira exactement quoi changer ; après correction, la publication est pos
 2. Envoyez un message privé à l’éditeur : [@SS3-4001](https://space.bilibili.com/10522156560)  
    Joignez : fichier (DOC/TXT/MD) + pseudonyme ou nom + une phrase bio (facultatif).  
 3. Réponse sous 21 jours. S’il faut retoucher, nous vous le dirons précisément.
+4. 📧 Courriel de soumission : [FLS-SS3-4001@outlook.com](mailto:FLS-SS3-4001@outlook.com)
 
 ---
 
@@ -343,5 +349,5 @@ On vous dira exactement quoi changer ; après correction, la publication est pos
 ---
 
 ### Questions ?  
-E-mail : farsighted.literary@gmail.com  
+E-mail : FLS-SS3-4001@outlook.com  
 Écrivez-nous en français, chinois ou anglais — nous répondrons.
