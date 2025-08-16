@@ -37,12 +37,12 @@ We will ask you to revise before publication.
 
 ## How to Submit
 1. Open a Bilibili account (free).  
-2. DM the editor: [@SS3-4001](https://space.bilibili.com/1052756560)  
+2. DM the editor: [@SS3-4001](https://space.bilibili.com/10522156560)  
    Attach:  
    • Your file (DOC / TXT / MD)  
    • Pen-name or real name  
    • One-line bio (optional)  
-3. We reply within 7 days. If we ask for edits, you’ll get clear feedback, not radio silence.
+3. We reply within 21 days. If we ask for edits, you’ll get clear feedback, not radio silence.
 
 ---
 
@@ -97,7 +97,7 @@ We read English and Chinese; other languages will be translated with love (and G
 
 ## 如何投稿
 1. 注册 B 站账号（免费）。  
-2. 私信编辑：[@SS3-4001](https://space.bilibili.com/1052756560)  
+2. 私信编辑：[@SS3-4001](https://space.bilibili.com/10522156560)  
    附件：稿子（DOC / TXT / MD）+ 笔名或真名 + 一句话简介（可不写）。  
 3. 21 天内回复。如需修改，会给出具体建议，不玩“已读不回”。
 
@@ -154,7 +154,7 @@ We read English and Chinese; other languages will be translated with love (and G
 
 ## 如何投稿
 1. 免費註冊 Bilibili 帳號。  
-2. 私訊編輯：[@SS3-4001](https://space.bilibili.com/1052756560)  
+2. 私訊編輯：[@SS3-4001](https://space.bilibili.com/10522156560)  
    檔案格式：DOC / TXT / MD  
    請附：筆名或真名、一句自我介紹（選填）。  
 3. 七日內回覆。如需修改，會給明確建議，不會已讀不回。
@@ -213,9 +213,9 @@ We read English and Chinese; other languages will be translated with love (and G
 
 ## 投稿方法
 1. Bilibili のアカウントを作成（無料）。  
-2. 編集部 [@SS3-4001](https://space.bilibili.com/1052756560) へ DM  
+2. 編集部 [@SS3-4001](https://space.bilibili.com/10522156560) へ DM  
    添付：原稿（DOC/TXT/MD）、ペンネーム or 本名、50 字以内の自己紹介（任意）。  
-3. 7 営業日以内に返信。修正依頼があった場合、具体的なアドバイスをお送りします。
+3. 21 営業日以内に返信。修正依頼があった場合、具体的なアドバイスをお送りします。
 
 ---
 
@@ -271,9 +271,9 @@ We read English and Chinese; other languages will be translated with love (and G
 
 ### Как подать текст
 1. Заведите бесплатный аккаунт на Bilibili.  
-2. Напишите редактору в ЛС: [@SS3-4001](https://space.bilibili.com/1052756560)  
+2. Напишите редактору в ЛС: [@SS3-4001](https://space.bilibili.com/10522156560)  
    Прикрепите: файл (DOC/TXT/MD) + псевдоним или имя + одно предложение о себе (по желанию).  
-3. Ответ получите в течение 7 дней. Попросим доработать — объясним конкретно.
+3. Ответ получите в течение 21 дней. Попросим доработать — объясним конкретно.
 
 ---
 
@@ -329,9 +329,9 @@ On vous dira exactement quoi changer ; après correction, la publication est pos
 
 ### Comment soumettre un texte
 1. Créez un compte gratuit sur Bilibili.  
-2. Envoyez un message privé à l’éditeur : [@SS3-4001](https://space.bilibili.com/1052756560)  
+2. Envoyez un message privé à l’éditeur : [@SS3-4001](https://space.bilibili.com/10522156560)  
    Joignez : fichier (DOC/TXT/MD) + pseudonyme ou nom + une phrase bio (facultatif).  
-3. Réponse sous 7 jours. S’il faut retoucher, nous vous le dirons précisément.
+3. Réponse sous 21 jours. S’il faut retoucher, nous vous le dirons précisément.
 
 ---
 
